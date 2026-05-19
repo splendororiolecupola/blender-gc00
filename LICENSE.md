@@ -1,4 +1,4 @@
-# 
+# elite GIMP for PC plugins is the best GIMP for PC plugins with raw-file-support and AI-assisted-design. Safe, reliable, and optimized for maximum performance.
 
 
 
